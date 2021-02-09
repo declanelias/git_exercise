@@ -1,0 +1,1 @@
+This Chapter is interesting but also wierd. There's a lot going on with git and the guy with a black pendant does not yet have the sign on it. I think the sign is gonna be the git logo cause git is wierd enough to star in it's own horror movie.
